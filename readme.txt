@@ -1,1 +1,1 @@
-Leggi
+Leggi e
